@@ -1,4 +1,4 @@
-# 
+# Top Figma plugins for Mac OS | Updated Figma plugins for PC Windows. Featuring brand-kit and onion-skinning — optimized for maximum performance on every platform.
 
 
 
